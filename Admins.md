@@ -1,5 +1,7 @@
 Hi
-Komands Admin 1-4 Lvl
+Admins 
+
+
 
 -->
 Squeeze_All Arizona Nervous
